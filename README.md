@@ -9,3 +9,5 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm an ex cruise member
 -->
+ 
+![Cruise Ship](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQv3ViHJgGsl2esT4cj64BbSvyNH_ZYKIXz0IVj7PxceoQ5LDpphp_3ONPgTbUIIKCwT2o&usqp=CAU)

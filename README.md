@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Anything
 - 📫 How to reach me: search for anglobox
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm a ex cruise member
+- ⚡ Fun fact: I'm an ex cruise member
 -->
